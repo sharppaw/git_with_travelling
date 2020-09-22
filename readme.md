@@ -6,3 +6,4 @@ Some of us are travelling in Beijing.
 There are lots of museums in Shanghai.
 There are lots of beatiful parks in Shanghai.
 Shanghai is a very modern city.
+There are plenty of rain in Shanghai.
